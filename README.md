@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Blackdraf95
+- 👀 I’m interested in videogames and computerscience
+- 🌱 I’m currently learning to obtain a bachelors degree in computer science
+- 💞️ I’m looking to find employment with a big tech company and also looking to develope games in my spare time
